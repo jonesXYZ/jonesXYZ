@@ -1,4 +1,3 @@
-<img src="">
 - 👋 Hi, I’m @jonesXYZ
 - 👀 I’m interested in girls
 - 🌱 I’m currently learning how to flex your girlfriend

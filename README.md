@@ -3,7 +3,7 @@
 - 👀 I’m interested in girls
 - 🌱 I’m currently learning how to flex your girlfriend
 - 💞️ I’m looking to collaborate on your stepsister.
-- 📫 How to reach me Discord #jonesXYZ#0001
+- 📫 How to reach me Discord jonesXYZ#0001
 
 
 <!---

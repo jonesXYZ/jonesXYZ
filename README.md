@@ -1,4 +1,4 @@
-✨ special marine frontend developer ✨
+✨ special marine frontend designer✨
 - 👋 Hi, I’m @jonesXYZ
 - 👀 I’m interested in girls
 - 🌱 I’m currently learning how to flex your girlfriend

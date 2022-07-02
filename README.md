@@ -1,8 +1,6 @@
 ✨ special marine frontend designer✨
 - 👋 Hi, I’m @jonesXYZ
-- 👀 I’m interested in girls
-- 🌱 I’m currently learning how to flex your girlfriend
-- 💞️ I’m looking to collaborate on your stepsister.
+- 👀 I’m interested in everything.
 - 📫 How to reach me Discord 'jonesXYZ#0001'
 
 

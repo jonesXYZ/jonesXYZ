@@ -1,7 +1,7 @@
 ✨ special marine frontend designer✨
 - 👋 Hi, I’m @jonesXYZ
 - 👀 I’m interested in everything.
-- 📫 How to reach me Discord 'jonesXYZ#0001'
+- 📫 How to reach me  - Discord @jonesXYZ
 
 
 <!---
